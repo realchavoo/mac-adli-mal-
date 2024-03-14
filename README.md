@@ -2,4 +2,5 @@ selam gencler mac diye patlak botcu ifsaladik dan sonra bizim bot yaptigimiz sun
 
 
 ![image](https://github.com/realchavoo/mac-adli-mal-/assets/133610412/83186969-3dc4-4767-803b-9dc90d9ec72e)
+
 bu ss deki onun fake hesapindaki hakkimda ki kismi botculugu mu biraktim yardim icin yazin aynen kanka sen botcusun aynen patlak botcu ya sikerim o anneni kasmer seni dikkat et o götünü o tutugun url den biri gitmis ya üzüldüm hdgsgfdhsgfshdfgshdgfshd
